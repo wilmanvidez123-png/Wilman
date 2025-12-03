@@ -29,6 +29,7 @@ Mis rituales cotidianos son simples: jugar juegos en el teléfono cuando la ansi
 
 La humillación por ser pobre fue una lección amarga. Me humillaron en mercados y tiendas, con miradas que medían la ropa y el acento. Me humillaron al pedir monedas, al parecer menos por no haber estudiado, por no saber expresarme con fluidez cuando recién llegué. Aprendí a traducir vergüenzas: si alguien te mira como si no valieras, tú vales el doble por haber seguido. Esa convicción se hizo piedra en mi mochila.
 
+
 Aun así, amo a mi familia. Parece una contradicción, pero no lo es: amar a quienes te han herido no significa justificar el daño; es decidir que el rencor no gobernará tu vida. Mi corazón eligió esa forma de resistencia. Les perdono en la medida en que elegir perdonar me libera de ser prisionero de su rechazo.
 
 
@@ -36,7 +37,6 @@ Hubo momentos de ternura escondida: el aroma del café que me lleva a la casa de
 
 
 Hoy digo mi historia como quien agarra una cuerda y revela el nudo para que otros no tropiecen en él. No soy un héroe sin cicatrices; soy alguien que aprendió a convertir el dolor en práctica. Pongo música cuando la noche pesa; corro cuando la mente se cierra; rezo cuando la esperanza titubea; y trabajo cuando la vida me lo pide. Mis pequeñas rutinas son mi escuela silenciosa.
-
 
 
 Quizá lo más importante que entendí es que la soledad y la pobreza no borran la dignidad; la afinan. Nos obligan a mirar el mundo con ojos de quien sabe que tiene que pelear cada día para permanecer íntegro. Y si algo me sostiene es la mezcla de todo esto: la música que me escucha, el ejercicio que me recuerda que mi cuerpo me pertenece, la fe que me confirma un acompañamiento divino y la decisión consciente de no permitir que el desprecio defina mi valor.
