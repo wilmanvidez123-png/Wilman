@@ -1,6 +1,7 @@
 # Wilman
 ¿ISTORIA Y REFLEXIÓN?
-Me llamo Wilman Videz. Hay una hora antes del amanecer que aprendí a robarle al día como si fuera un privilegio: la casa respira lento, la luz todavía no exige y yo me obligo a volver al cuerpo con tres respiraciones profundas. Ese pequeño rito me ancla. Es en ese hueco donde pienso en todo lo que me hizo ser quien soy: la frase que me atravesó de niño, las tardes de trabajo, la mudanza que llamaron milagro y las canciones tristes que me enseñaron a llorar sin preguntas.![1000118931](https://github.com/user-attachments/assets/3a76c7ff-928e-4f07-b538-d7ffb6564872)
+Me llamo Wilman Videz.
+Hay una hora antes del amanecer que aprendí a robarle al día como si fuera un privilegio: la casa respira lento, la luz todavía no exige y yo me obligo a volver al cuerpo con tres respiraciones profundas. Ese pequeño rito me ancla. Es en ese hueco donde pienso en todo lo que me hizo ser quien soy: la frase que me atravesó de niño, las tardes de trabajo, la mudanza que llamaron milagro y las canciones tristes que me enseñaron a llorar sin preguntas.![1000118931](https://github.com/user-attachments/assets/3a76c7ff-928e-4f07-b538-d7ffb6564872)
 
 
 Tenía diez años cuando una palabra me cayó encima con la violencia de una piedra: alguien dijo que quizás no debía haber nacido. No fue un juego ni un reproche pasajero; fue una sentencia que se quedó pegada al pecho. La noche se llenó de silencios y de escondites: lloraba a escondidas, me escondía para que nadie me viera, y cuando me miraban respondía con una sonrisa porque aprendí pronto que la tristeza debe parecer frágil si no quieres que te la roben de otra manera.
